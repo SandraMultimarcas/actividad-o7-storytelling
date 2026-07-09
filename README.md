@@ -1,0 +1,2 @@
+# actividad-o7-storytelling
+Determinar público objetivo de acuerdo, procedimiento y técnicas de segmentación de mercado
